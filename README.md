@@ -13,4 +13,4 @@ Sometimes they're handy, sometimes just fun...
 |                                                                | [Cookie Manager](https://cookie-manager.zakweb.dev/)             |
 
 If you're interested in Tribes: Ascend, you can find me in the TA [Discord server](https://discord.gg/dd8JgzJ) (I'm `@_giga`).  
-Come hang out and shoot some disks! 😀
+Come hang out and shoot some disks! 😁
